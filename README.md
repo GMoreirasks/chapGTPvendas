@@ -1,0 +1,2 @@
+# chapGTPvendas
+empreendedorismo digital
